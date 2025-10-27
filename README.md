@@ -1,2 +1,3 @@
-# AI_Z_V1_00
-This is oof289's
+# AI_Z_V1_00 
+No copy rights
+This is a made up name for an AI the creator has never heard of any AI named AI Z before.
